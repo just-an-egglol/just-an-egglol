@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @just-an-egglol
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning more about coding
+- 😄 Pronouns: he/him
